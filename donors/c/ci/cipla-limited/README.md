@@ -1,0 +1,7 @@
+# CIPLA LIMITED (222)
+
+## Other names
+1. CIPLA LIMITED (222)
+1. CIPLA LTD (661)
+
+

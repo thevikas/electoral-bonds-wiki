@@ -1,0 +1,7 @@
+# MICRO LABS LTD (498)
+
+## Other names
+1. MICRO LABS LIMITED (558)
+1. MICRO LABS LTD (498)
+
+

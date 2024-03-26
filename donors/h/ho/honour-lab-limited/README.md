@@ -1,0 +1,7 @@
+# HONOUR LAB LIMITED (220)
+
+## Other names
+1. HONOUR LAB LIMITED (220)
+1. HONOUR LAB LTD (357)
+
+

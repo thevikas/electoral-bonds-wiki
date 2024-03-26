@@ -1,0 +1,7 @@
+# MADANLAL LTD. (639)
+
+## Other names
+1. MADANLAL LTD. (639)
+1. MADANLALLTD. (640)
+
+

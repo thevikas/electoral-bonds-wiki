@@ -1,0 +1,7 @@
+# VEDANTA LIMITED (79)
+
+## Other names
+1. VEDANTA LIMITED (79)
+1. VEDANTA LTD (722)
+
+

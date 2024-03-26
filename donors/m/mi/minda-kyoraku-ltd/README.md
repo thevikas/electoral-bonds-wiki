@@ -1,0 +1,2 @@
+# MINDA KYORAKU LTD (1197)
+
