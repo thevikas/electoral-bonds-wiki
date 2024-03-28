@@ -1,4 +1,4 @@
-# AUROBINDO PHARMA LIMITED (150)
+# AUROBINDO PHARMA LIMITED
 
 ![Delhi liquor scam](https://media.assettype.com/newslaundry%2F2024-03%2F53e3f6cd-e883-45e5-95ca-531505135959%2Faurobindo_2.jpg?auto=format%2Ccompress&fit=max&format=webp&w=1200&dpr=2.0)
 
