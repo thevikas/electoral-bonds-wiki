@@ -5,7 +5,7 @@
 ## News and Reports
 
 1. [Bharti group’s Rs 150 crore bond donation to BJP coincided with Modi government’s telecom u-turn](https://www.newslaundry.com/2024/03/27/bharti-groups-rs-150-crore-bond-donation-to-bjp-coincided-with-modi-governments-telecom-u-turn) - newslaundry.com
-2. [Bharti group’s Rs 150 crore bond donation to BJP coincided with Modi government’s telecom U-turn](https://scroll.in/article/1065827/bharti-groups-rs-150-crore-bond-donation-to-bjp-coincided-with-modi-governments-telecom-u-turn) - scroll.in
+3. [List of commercial VSAT Licenses](https://dot.gov.in/sites/default/files/List%20of%20Satellite%20service%20licensees%2001-03-2024.pdf)
 
 
 ## Other names
