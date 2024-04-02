@@ -1,4 +1,4 @@
-# MKJ ENTERPRISES LTD (30)
+# MK Jalan Group
 
 ![](https://cdn.thewire.in/wp-content/uploads/2024/03/15211746/Untitled-design-45.png)
 
