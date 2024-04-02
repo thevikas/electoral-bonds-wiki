@@ -10,6 +10,6 @@
 1. [Kotak firm’s Rs 60 crore donation to BJP coincided with crucial RBI decisions on Kotak Mahindra Bank](https://www.newslaundry.com/2024/03/28/kotak-firms-rs-60-crore-donation-to-bjp-coincided-with-crucial-rbi-decisions-on-kotak-mahindra-bank)
 1. [Navayuga Engineering – Building Collapsed Silkyara Tunnel – Gave Rs 55 Cr Electoral Bonds to BJP](https://thewire.in/business/navayuga-engineering-responsible-for-building-the-collapsed-silkyara-tunnel-bought-rs-55-cr-of-bonds#:~:text=But%20after%20Jagan%20Reddy%20came,all%20went%20to%20the%20BJP.)
 1. [Electoral Bonds Data: Among Top 5 Donors, Who is Behind Haldia Energy Ltd?](https://www.thequint.com/news/politics/electoral-bonds-haldia-energy-sanjiv-goenka-lucknow-super-giants#read-more)
+1. [Firms Linked to Kolkata Industrialist Mahendra Jalan Spent Rs 617 Crore on Electoral Bonds](https://thewire.in/politics/firms-linked-to-kolkata-industrialist-mahendra-jalan-spent-rs-617-crore-on-electoral-bonds#:~:text=The%20payments%20made%20through%20Keventer,May%2010%20through%20Madanlal%20Ltd.)
 
-
-Highlight: HALDIA ENERGY LIMITED,NAVAYUGA ENGINEERING CO LTD,INFINA FINANCE PRIVATE LIMITED (Uday Kotak),TORRENT POWER LIMITED,DLF COMMERCIAL DEVELOPERS LIMITED,MEGHA ENGINEERING & INFRASTRUCTURES LIMITED,VEDANTA LIMITED,KEVENTER FOODPARK INFRA LIMITED,BHARTI AIRTEL LIMITED,Reliance Industries Limited (QWIK SUPPLY CHAIN PRIVATE LIMITED)
+Highlight: MADANLAL LTD.,HALDIA ENERGY LIMITED,NAVAYUGA ENGINEERING CO LTD,INFINA FINANCE PRIVATE LIMITED (Uday Kotak),TORRENT POWER LIMITED,DLF COMMERCIAL DEVELOPERS LIMITED,MEGHA ENGINEERING & INFRASTRUCTURES LIMITED,VEDANTA LIMITED,KEVENTER FOODPARK INFRA LIMITED,BHARTI AIRTEL LIMITED,Reliance Industries Limited (QWIK SUPPLY CHAIN PRIVATE LIMITED)
