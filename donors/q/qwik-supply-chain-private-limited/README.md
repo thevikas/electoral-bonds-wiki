@@ -1,6 +1,6 @@
 # Reliance Industries Limited
 
-![Reliance Group](https://media.assettype.com/newslaundry%2F2024-03%2Fd2a4649d-5b7b-4e6e-a9de-f69f4f8075b4%2FReliance_new_bond_details.jpg?auto=format%2Ccompress&fit=max&format=webp&w=1200&dpr=2.0)
+![Reliance Group](https://sc0.blr1.cdn.digitaloceanspaces.com/article/199258-jujgwqchcb-1710477868.jpeg)
 
 ## News and Reports
 
