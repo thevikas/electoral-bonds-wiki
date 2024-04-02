@@ -1,4 +1,4 @@
-# Bharatiya Janata Party
+# [Bharatiya Janata Party](https://findmygov.in/en/electoral-bonds/party/bharatiya-janata-party)
 
 ![](https://media.assettype.com/newslaundry%2F2024-03%2F3360ffe0-8452-4518-b5a0-db0d3943244b%2FBJPEB.png?auto=format%2Ccompress&fit=max&format=webp&w=1200&dpr=2.0)
 
