@@ -5,5 +5,7 @@
 ## News and Reports
 
 1. [BJP’s top donors: Megha, Reliance-linked firms, Keventer, Birla, Bharti, Vedanta](https://www.newslaundry.com/2024/03/21/bjps-top-donors-megha-reliance-linked-firms-keventer-birla-bharti-vedanta)
+2. [After Rs 170 crore to BJP, DLF got ‘clean chit’ in Vadra land deal from Haryana government](https://www.newslaundry.com/2024/03/22/after-rs-170-crore-to-bjp-dlf-got-clean-chit-in-vadra-land-deal-from-haryana-government)
 
-Highlight: MEGHA ENGINEERING & INFRASTRUCTURES LIMITED,VEDANTA LIMITED,KEVENTER FOODPARK INFRA LIMITED,BHARTI AIRTEL LIMITED,Reliance Industries Limited (QWIK SUPPLY CHAIN PRIVATE LIMITED)
+
+Highlight: 	DLF COMMERCIAL DEVELOPERS LIMITED,MEGHA ENGINEERING & INFRASTRUCTURES LIMITED,VEDANTA LIMITED,KEVENTER FOODPARK INFRA LIMITED,BHARTI AIRTEL LIMITED,Reliance Industries Limited (QWIK SUPPLY CHAIN PRIVATE LIMITED)
